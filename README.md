@@ -1,3 +1,2 @@
-![IMG_0049](https://github.com/user-attachments/assets/3a7612c1-2439-456f-81ca-917cb3ae7ea8)
-
+![technical-difficulties-tenna](https://github.com/user-attachments/assets/31f29c30-296f-4533-8917-328d3123246e)
 
